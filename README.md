@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @poojansmart-syndigo
+- 👀 I’m interested in Technology
+- 🌱 I’m currently learning MDM
+- 📫 How to reach me poojan.smart@syndigo.com
